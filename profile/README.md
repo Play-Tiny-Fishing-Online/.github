@@ -4,6 +4,8 @@
 
 **Tiny Fishing** is a *hyper casual idle fishing game* that challenges players to catch as many fish as possible from the deep blue sea. With its **simple yet addictive mechanics**, vibrant 2D graphics, and smooth gameplay, this *unblocked fishing simulator* is perfect for players of all ages who enjoy *arcade-style adventures*.
 
+## <a href="https://1kb.link/9ZTSNX">👉 Click To Play Tiny Fishing Unblocked Games 👈</a>
+
 Whether you're on a short break or aiming to become a legendary fisherman, Tiny Fishing delivers **endless fun** with every cast!
 
 ---
